@@ -1,1 +1,1 @@
-# reason_for_assignment_not_completion
+Actually I got to know about this internship today(31/10/2025) and its the last date to apply and only some little hours our left. So I can't do that assignment in that time. If I got selected for this internship I promise that I will definitely complete this assignment before the start of the internship and I want to give you the surity that my project will stand out among many of the selected candidates.
